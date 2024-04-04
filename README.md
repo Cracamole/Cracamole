@@ -1,0 +1,7 @@
+- 👋 fala gurizada
+- 👀 olhinho
+- 🌱 to fazendo curso técnico
+- 💞️ solteiro 🤓
+- 📫 Não chegue
+- 😄 Pronome: Bah/tchê
+- ⚡ Fun fact: eu vou dar meu cu e meu bucetão e nesse verão nada mais importa faz meu cu de xota.
